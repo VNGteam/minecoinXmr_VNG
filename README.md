@@ -1,0 +1,1 @@
+# minecoinXmr_VNG
